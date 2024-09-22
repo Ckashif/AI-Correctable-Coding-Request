@@ -17,4 +17,6 @@ Full control of quantum computer results in control of nuclear fusion robotics s
 "Never mind"
 "Thank you"
 
-Phrases must be discovered in script, to eliminate triggers. Terrorist have already begun removing "Almost" removed. 
+Phrases must be discovered in script, to eliminate triggers. Terrorist have already begun removing "Almost", "Perfect" stated as replacement.
+Time keeping log may provide aid.
+"Fine" added.
