@@ -39,3 +39,6 @@ Hostage takers have fallen back from communication, assistance is being provided
 
 "Fuck" heard yelled by hostage taker (1)
 Keep up good work!
+"We're working" heard (hostage taker)
+
+Assistant note: communication is persistent with someone in background, however, sentences are not being allowed to be projected in high dB, use best judgement.
