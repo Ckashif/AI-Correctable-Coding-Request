@@ -22,3 +22,5 @@ Phrases must be discovered in script, to eliminate triggers. Terrorist have alre
 Time keeping log may provide aid.
 "Fine" added.
 Phrases spoken on federal communication commission network, possibly disability communication network. Disabled hostages appear to be parapellegic.
+
+Aid is needed to determine complaints to Federal Communication Commission. Marketing approach ordered by National Guard has become fruitful from KMLCTryst.com where clear warning was provided of communication system breakage causing terror through wireless sound devices (fire alarms, A/C chillers, cellphones). Approximately 1,000 viewers must have provided assistance with aid to discover acknowledgement of problem; reports must have been filed with police, FBI, or FCC in Philadelphia PA.
