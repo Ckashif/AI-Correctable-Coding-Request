@@ -51,3 +51,7 @@ Low dB = Victim
 This schema possibly changed as soon as thought came to mind, and now changed back; Keep up!
 
 Majority of communication from victims currently. Hostage takers most likely coding to defend their AI coding structure in quantum mainframe.
+
+Reported that coding has been erased. Even found "Marine Corp"
+
+God bless, Request is closing.
