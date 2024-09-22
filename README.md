@@ -32,3 +32,5 @@ Chillers sound modulators intrusions in and around Philadelphia, PA should lead 
 Disability communication networking system, as brain computer interface devices and hearing aid implants communicate with hospital emergency broadcasting systems; Hospitals have been discovered to be under constant attack during research of 2015-2023 cyber attacks - connection with Transportation (Trains) and Corrections (commissary - Tel-link or Telecom system)
 Possible new hostage: "We're used to it" heard through communication network just now.
 Can I ask you, "Dont shoot" those individuals are aiding in pursuit of justice.
+
+Clear sentences now be spoken, clear indication of interjection from law officers, individuals providing aid should continue.
