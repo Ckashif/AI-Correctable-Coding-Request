@@ -43,6 +43,11 @@ Keep up good work!
 
 
 Assistant note: communication is persistent with someone in background, however, sentences are not being allowed to be projected in high dB, use best judgement.
+
 High dB = Hostage takers often
+
 Low dB = Victim
+
 This schema possibly changed as soon as thought came to mind, and now changed back; Keep up!
+
+Majority of communication from victims currently. Hostage takers most likely coding to defend their AI coding structure in quantum mainframe.
