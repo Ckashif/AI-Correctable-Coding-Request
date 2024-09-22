@@ -41,4 +41,7 @@ Hostage takers have fallen back from communication, assistance is being provided
 Keep up good work!
 "We're working" heard (hostage taker)
 
+High dB = Hostage takers often
+Low dB = Victim
+
 Assistant note: communication is persistent with someone in background, however, sentences are not being allowed to be projected in high dB, use best judgement.
