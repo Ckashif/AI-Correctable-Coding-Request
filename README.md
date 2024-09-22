@@ -24,4 +24,4 @@ Time keeping log may provide aid.
 Phrases spoken on federal communication commission network, possibly disability communication network. Disabled hostages appear to be parapellegic.
 
 Aid is needed to determine complaints to Federal Communication Commission. Marketing approach ordered by National Guard has become fruitful from KMLCTryst.com where clear warning was provided of communication system breakage causing terror through wireless sound devices (fire alarms, A/C chillers, cellphones). Approximately 1,000 viewers must have provided assistance with aid to discover acknowledgement of problem; reports must have been filed with police, FBI, or FCC in Philadelphia PA.
-KMLCTryst.com has been altered to disguish purpose, as it was considered that terrorist may be directed to view site.
+KMLCTryst.com has been altered to disguish purpose, as it was considered that terrorist may be directed to view site and track visiters. Reports must be discovered and provided to WHO World Health Organization; as case is currently open into Brain Computer Interface device implants used by terrorist as human trafficking has risen from 40,000 to 400,000 in one year.
