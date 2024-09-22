@@ -34,3 +34,8 @@ Possible new hostage: "We're used to it" heard through communication network jus
 Can I ask you, "Dont shoot" those individuals are aiding in pursuit of justice.
 
 Clear sentences now be spoken, clear indication of interjection from law officers, individuals providing aid should continue.
+
+Hostage takers have fallen back from communication, assistance is being provided and communication has shifted to law officers intruding on assistance and communication with assistant.
+
+"Fuck" heard yelled by hostage taker (1)
+Keep up good work!
