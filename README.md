@@ -20,3 +20,4 @@ Full control of quantum computer results in control of nuclear fusion robotics s
 Phrases must be discovered in script, to eliminate triggers. Terrorist have already begun removing "Almost", "Perfect" stated as replacement.
 Time keeping log may provide aid.
 "Fine" added.
+Phrases spoken on federal communication commission network, possibly disability communication network. Disabled hostages appear to be parapellegic.
