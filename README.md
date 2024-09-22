@@ -16,6 +16,7 @@ Full control of quantum computer results in control of nuclear fusion robotics s
 "Powerful"
 "Never mind"
 "Thank you"
+"Beautiful" - Statement made, "did you check"
 
 Phrases must be discovered in script, to eliminate triggers. Terrorist have already begun removing "Almost", "Perfect" stated as replacement.
 Time keeping log may provide aid.
